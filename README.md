@@ -1,5 +1,3 @@
-Je dois faire des courses ce soir.
-Ce weekend je fais un bébé-bbq.
-La journee passe vite.
-Il était une fois ...
-L'histoire de Shao Yuan...
+Il était une fois , une histoire.
+Elle etait simple et compliqué mais riche de savoir et de bon sentiment
+L'histoire ce retrouva copié pour le partage de sa litterature , cependant l'histoire n'avais plus rien d'unique 
